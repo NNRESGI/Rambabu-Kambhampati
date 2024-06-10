@@ -1,1 +1,1 @@
-please downlod proteus patch file and extract it to desktop
+by selecting <CODE> option Click on Download zip
