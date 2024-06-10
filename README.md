@@ -1,1 +1,1 @@
-by selecting <>CODE option Click on Download zip
+by selecting <>Code option Click on Download zip
